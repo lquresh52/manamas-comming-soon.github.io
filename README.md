@@ -1,1 +1,1 @@
-Manamas Comming Soon website.
+Manamas Contact Info Website.
